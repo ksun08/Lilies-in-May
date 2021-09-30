@@ -1,8 +1,33 @@
-## The beginning 
+## A journaling timeline
 
 ### mlk.gyu
 
-![Image](src)
+![Image](src) 
+![Image](src) 
+first feed (pink edited)
+
+![Image](src) 
+![Image](src) 
+second feed (white edited)
+
+![Image](src) 
+![Image](src) 
+third feed (natural, color graded + doodles)
+
+![Image](src) 
+![Image](src) 
+fourth feed (natural warm lighting, doodles, maximalist)
+
+### ikegyumi
+
+![Image](src) 
+![Image](src) 
+fifth feed (glowy editing, colorful doodles, new journal) 
+
+![Image](src) 
+![Image](src) 
+sixth feed (warm natural lighting)
+
 
 You can use the [editor on GitHub](https://github.com/ksun08/Lilies-in-May/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
