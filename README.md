@@ -1,6 +1,6 @@
 ## A journaling timeline
 
-### [mlk.gyu](https://www.instagram.com/mlk.gyu/ "mlk.gyu")
+### [mlk.gyu](https://www.instagram.com/mlk.gyu/)
 
 ![Pink theme](IMG_9971.jpg) 
 
@@ -20,13 +20,12 @@
 
 ![Natural theme white doodles](Boom.png) 
 
-![Image](src) 
+![New a5 journal](Untitled_Artwork.png) 
 
-![Image](src) 
+![New a5 journal](Untitled_Artwork (1).png) 
 
-second feed (white edited)
+![New a5 journal](Untitled_Artwork (2).png) 
 
-![Image](src) 
 ![Image](src) 
 third feed (natural, color graded + doodles)
 
@@ -34,7 +33,7 @@ third feed (natural, color graded + doodles)
 ![Image](src) 
 fourth feed (natural warm lighting, doodles, maximalist)
 
-### ikegyumi
+### [ikegyumi](https://www.instagram.com/ikegyumi/)
 
 ![Image](src) 
 ![Image](src) 
