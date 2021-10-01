@@ -14,11 +14,11 @@
 
 ![White theme](IMG_9976.jpg) 
 
-![Image](src) 
+![Natural theme white doodles](Summer_Playlist.png) 
 
-![Image](src) 
+![Natural theme white doodles](Monster.png) 
 
-![Image](src) 
+![Natural theme white doodles](Boom.png) 
 
 ![Image](src) 
 
