@@ -1,6 +1,7 @@
 ## A journaling timeline
 
-### [mlk.gyu](https://www.instagram.com/mlk.gyu/)
+### The Beginning
+#### [mlk.gyu](https://www.instagram.com/mlk.gyu/)
 
 ![Pink theme](IMG_9971.jpg) 
 
@@ -26,7 +27,10 @@
 
 ![New a5 journal](Untitled_Artwork (2).png) 
 
-### [ikegyumi](https://www.instagram.com/ikegyumi/)
+______________________________________________________________________________________________________________________________________________________
+
+### The End
+#### [ikegyumi](https://www.instagram.com/ikegyumi/)
 
 ![colored doodles](Untitled_Artwork (3).png) 
 
