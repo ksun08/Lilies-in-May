@@ -1,7 +1,7 @@
 ## A journaling timeline
 
 ### mlk.gyu
-![link] https://www.instagram.com/mlk.gyu/
+https://www.instagram.com/mlk.gyu/
 
 ![Pink theme](IMG_9971.jpg) 
 
