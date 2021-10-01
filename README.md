@@ -26,14 +26,28 @@
 
 ![New a5 journal](Untitled_Artwork (2).png) 
 
-![Image](src) 
-third feed (natural, color graded + doodles)
-
-![Image](src) 
-![Image](src) 
-fourth feed (natural warm lighting, doodles, maximalist)
-
 ### [ikegyumi](https://www.instagram.com/ikegyumi/)
+
+![colored doodles](Untitled_Artwork (3).png) 
+
+![colored doodles](Untitled_Artwork (4).png) 
+
+![colored doodles](Untitled_Artwork (5).png) 
+
+![Image](src) 
+
+![Image](src) 
+
+![Image](src) 
+
+![Image](src) 
+
+![Image](src) 
+
+![Image](src) 
+
+
+
 
 ![Image](src) 
 ![Image](src) 
