@@ -2,8 +2,7 @@
 
 ### mlk.gyu
 
-![https://github.com/ksun08/Portfolio/blob/main/IMG_9971.jpg](src) 
-![Image](src) 
+![Image](IMG_9971.jpg) 
 first feed (pink edited)
 
 ![Image](src) 
