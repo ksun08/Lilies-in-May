@@ -2,17 +2,17 @@
 
 ### mlk.gyu
 
-![Image](IMG_9971.jpg) 
+![Pink theme](IMG_9971.jpg) 
 
-![Image](IMG_9970.jpg) 
+![Pink theme](IMG_9970.jpg) 
 
-![Image](IMG_9969.jpg) 
+![Pink theme](IMG_9969.jpg) 
 
-![Image](src) 
+![White theme](IMG_9972.jpg) 
 
-![Image](src) 
+![White theme](IMG_9974.jpg) 
 
-![Image](src) 
+![White theme](IMG_9976.jpg) 
 
 ![Image](src) 
 
