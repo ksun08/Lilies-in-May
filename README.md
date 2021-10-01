@@ -1,6 +1,6 @@
 ## A journaling timeline
 
-### [link](https://www.instagram.com/mlk.gyu/ "mlk.gyu")
+### [mlk.gyu](https://www.instagram.com/mlk.gyu/ "mlk.gyu")
 
 ![Pink theme](IMG_9971.jpg) 
 
