@@ -1,4 +1,4 @@
-## A journaling timeline
+## A Journaling Timeline
 
 ### The Beginning
 #### [mlk.gyu](https://www.instagram.com/mlk.gyu/)
@@ -43,11 +43,3 @@ ________________________________________________________________________________
 ![random](Untitled_Artwork (7).png) 
 
 ![random](Untitled_Artwork (8).png) 
-
-
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
